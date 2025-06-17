@@ -1,0 +1,1 @@
+# -ehirle-me-De-i-im-Analizi-G-r-nt-leme-ile-Alan-Hesaplama
